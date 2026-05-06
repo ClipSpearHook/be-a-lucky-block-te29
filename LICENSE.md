@@ -1,4 +1,4 @@
-
+be a lucky block Scripts best offers the most advanced be a lucky block Script, with no cooldown and no clip. Perfect for dominating any match.
 
 
 
